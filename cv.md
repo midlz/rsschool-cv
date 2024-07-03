@@ -5,7 +5,7 @@
 **E-mail:** midlz@bk.ru
 **Telegram:** @SeredinY
 
-**Discord:** [SeredinY](https://discordapp.com/users/292205478493290507/)
+**Discord:** [SeredinY].(https://discordapp.com/users/292205478493290507/)
 
 ## Обо мне :
 
